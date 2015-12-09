@@ -1,2 +1,2 @@
 # Repozitar
-sddsfdsdfsffsdfs
+toto je sranda
